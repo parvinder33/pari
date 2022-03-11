@@ -1,1 +1,10 @@
-# pari
+https://itronixsolution.com
+https://itronixsolutions.com
+https://digitalmarketingjalandhar.in
+https://thelaconic.co
+https://thedigitaladda.com
+https://ccnatrainingjalandhar.in
+https://priyadogra.com
+https://inspiritualchetna.com
+https://machinelearning.org.in
+https://indiansuccessstories.com
